@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Topu99
 - 👀 I’m interested in freelancing
 - 🌱 I’m currently learning study
-- 💞️ I’m looking to collaborate on wok
+- 💞️ I’m looking to collaborate on work
 - 📫 How to reach me facebook(https://www.facebook.com/topur.topuroy)
 
 <!---
